@@ -5,6 +5,7 @@
 - 📫 You can reach me in Telegram: @exxnihilo or ilnar13371337@gmail.com
 - 😄 Pronouns:  he/him
 - ⚡ Fun fact: I got my own bear
+- Huge fan of Miyazaki (both game-designer and animator)
 
 <!---
 exxnihilo/exxnihilo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
